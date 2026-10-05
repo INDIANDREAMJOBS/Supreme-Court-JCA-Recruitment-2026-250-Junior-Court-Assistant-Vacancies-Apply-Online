@@ -1,0 +1,2 @@
+# Supreme-Court-JCA-Recruitment-2026-250-Junior-Court-Assistant-Vacancies-Apply-Online
+Detailed recruitment notification for 250 Group 'B' Non-Gazetted Junior Court Assistant (JCA) posts in the Supreme Court of India. Covers eligibility criteria (Bachelor's Degree + 35 wpm typing), age limits, Level 6 Pay Matrix (~₹65,000/month), online application fee, selection stages, official PDF download link, and direct application portal.
